@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Rostyslav (rstkhldntsk) Kholodnytskyi.
+### Hi there 👋
 - 🔭 @IG Group(Tasty Trade)
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/rstkhldntsk/)
 
